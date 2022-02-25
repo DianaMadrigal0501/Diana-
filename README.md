@@ -1,2 +1,0 @@
-# Diana-
-Operdores matemáticos 
